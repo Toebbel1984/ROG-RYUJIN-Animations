@@ -19,3 +19,4 @@
 ![fghnnfsdgjfghjsdjh](https://github.com/Toebbel1984/ROG-RYUJIN-Animations/assets/41846585/40582816-7c0e-407f-9f29-53e2a49646f1)
 ![myblaheye](https://github.com/Toebbel1984/ROG-RYUJIN-Animations/assets/41846585/e9000b47-8045-4c31-9298-d9a66c41b3cc)
 ![mylogos3k](https://github.com/Toebbel1984/ROG-RYUJIN-Animations/assets/41846585/da17d0e3-e211-4590-b31c-d4c9bf53d62f)
+![rogrysanim](https://github.com/Toebbel1984/ROG-RYUJIN-Animations/blob/main/rogrysanim.gif)
